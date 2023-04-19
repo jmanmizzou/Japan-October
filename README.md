@@ -1,5 +1,3 @@
-# Japan October 2023 Plan 
-
 ## Planes
 
 Flight #1: October 16th, 2023 
