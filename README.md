@@ -83,4 +83,8 @@ or
 $10,318.55 (okay living)
 
 
+I am asking for $4500 to $5000 if possible
+
+On my last document I put way less on food which was incorrect. 
+
 
